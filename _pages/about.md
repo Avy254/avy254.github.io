@@ -11,4 +11,4 @@ This is my updated page of the learning channel. Thank you for visiting my page.
 
 Averil personal website
 ======
-WEB DESIGNING AVAILABLE
+WEB DESIGNING AVAILABLE IN BLUE
